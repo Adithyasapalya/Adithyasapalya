@@ -1,6 +1,6 @@
 ## Hello Techies!!, This is Adithya 😎
 
-🧠 AIML Students at VCET Puttur<br/>
+🧠 AIML Student at VCET Puttur<br/>
 👨‍🔬 Learning and Working on Blockchain<br/>
 🖊️ I love creating posters and editing images along with videos<br/>
 🏋️‍♂️ Passionate about Health and Fitness <br/>
